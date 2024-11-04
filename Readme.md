@@ -1,0 +1,1 @@
+# accorgin common question and anwser in marketing 
